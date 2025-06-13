@@ -39,4 +39,5 @@ Soluções Personalizadas: O bot é moldado para atender suas necessidades espec
 Se você é administrador e quer mais controle, segurança e eficiência nas transações e gestões financeiras dentro do Telegram, o Bot Telegram Wallet é a solução ideal para você!
 
 Entre em contato e descubra como podemos otimizar o seu processo de administração!
+
 https://t.me/+63L1zuLfpsk1OWJk
